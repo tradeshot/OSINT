@@ -1,1 +1,1 @@
-http://312265.osinthijacking.itmo.xyz/
+http://VAN.312265.osinthijacking.itmo.xyz/
